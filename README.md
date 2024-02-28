@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Gostosona113
-- 👀 I’m interested in ...sua mae
-- 🌱 I’m currently learning ...q
-- 💞️ I’m looking to collaborate on ...🥺emoji implorando por pai
+- 👀 I’m interested in... isa
+- 🌱 I’m currently learning ... mexer nesse app
+- 💞️ I’m looking to collaborate on ...🥺emoji implorando por pau
 - 📫 How to reach me ... MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...MuĘėÈËē3hEĘėÈËē3hEĘėÈËē3hEĘėÈËē3hE...
 
 <!---
